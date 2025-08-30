@@ -12,7 +12,7 @@ Class Roll number- 2515108
 
 Day 1:
 
-It was the first day of the induction program and the day began by seeking blessings from Gurudwara Sahib. After that, students of Cse and IT were present in the auditorium, we interacted with today's chief guest Sardar Mahesh Inder Singh Grewal after that we were guided by Dr.Sehjpal Singh principal of Gndec.Also we were guided by Dr.Harpreet kaur Grewal H.O.D of applied science with her kind words.
+On the first day of the induction program aftee seeking blessings from Gurudwara Sahib. Students of CSE and IT Branch gathered in the auditorium. We interacted with today's chief guest Sardar Mahesh Inder Singh Grewal after that we were guided by Dr.Sehjpal Singh principal of Gndec.Also we were guided by Dr.Harpreet kaur Grewal H.O.D of applied science with her kind words.
 
 Day 2:
 
